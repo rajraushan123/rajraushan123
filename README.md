@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate whith friends and teachers.
 - 📫 How to reach me ... by link only.
 - 😄 Pronouns: ... RAJ
-- ⚡ Fun fact: ... work on your interest.
+- ⚡ Fun fact: ... work on my interest.
 
 <!---
 rajraushan123/rajraushan123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
